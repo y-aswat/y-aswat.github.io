@@ -1,4 +1,4 @@
-# Hi, I'm Yasin 
+# Welcome lads and laddettes, im Yasin 
 
 ---
 
